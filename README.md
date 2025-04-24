@@ -1,0 +1,1 @@
+# vazifalar_1_8
